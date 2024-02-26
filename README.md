@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @khangerel69
-- 👀 I’m interested in your mom
-- 🌱 I’m currently learning sex
-- 💞️ I’m looking to collaborate on with drake
+- 👀 I’m interested in your mom😏😏
+- 🌱 I’m currently learning sex🙀🙀🙀🙀
+- 💞️ I’m looking to collaborate on with drake🍆🍆
 - 📫 How to reach me idk
 - 😄 Pronouns: hee/hee
 - ⚡ Fun fact: im gay
